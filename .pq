@@ -6,4 +6,4 @@
 ‘Discussions on GitHub’[https://github.com/dendrowriting/dendrowriting.github.io/discussions]’
 
 
-><‘C(4)‘\/‘(This domain name is registered with/by NNNN[‘‘N.N.’/‘Nomen Nescio’\‘No Name’ Neural Network’].)’’’
+><‘C(4)‘\/‘(This domain name is registered with/by N4[‘NNNN — ‘N.N.’/‘Nomen Nescio’\‘No Name’ Neural Network’].)’’’
